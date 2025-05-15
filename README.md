@@ -1,0 +1,1 @@
+Thank you for downloading TheOneTrueSpoon's challenge pack for Balatro. You can find updated challenges every so often on their github here. https://github.com/TheOneTrueSpoon   Any questions or request's for challenges you can contact them at theonetruespoon@gmail.com
